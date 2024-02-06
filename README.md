@@ -4,6 +4,8 @@
 –– ОЧЕНЬ ВАЖНАЯ КАРТА РОАДМЭП ДЛЯ ПОДГОТОВКИ К ИНТЕНСИВУ ––
 https://miro.com/app/board/uXjVMHnbIec=/?share_link_id=897414828984
 
+![telegram-cloud-photo-size-2-5332372580440593653-x](https://github.com/aausachova/Swimming-pool-at-school/assets/143784011/cac9fa54-e304-4f4a-af6d-7cc50a2e0c57)
+
 
 ## Что необходимо знать перед прохождением бассейна:
 
