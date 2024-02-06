@@ -25,4 +25,5 @@ https://miro.com/app/board/uXjVMHnbIec=/?share_link_id=897414828984
 👀 Как известно, что бы хорошо сдать экзамен, к нему нужно хорошо подготовится, ниже будет ссылочка на репозиторий со всеми(почти) задачками с экза! 👀
 https://github.com/ireallywanttostayatyourhouseso/exam2023
 
+
 ![telegram-cloud-photo-size-2-5321119246434031331-y](https://github.com/aausachova/Swimming-pool-at-school/assets/143784011/91a8cb3d-b974-4b34-b718-e6537d1631c9)
