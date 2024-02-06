@@ -1,1 +1,1 @@
-# Swimming-pool-at-school
+# Swimming pool at school
